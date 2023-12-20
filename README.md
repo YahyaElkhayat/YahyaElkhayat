@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @YahyaElkhayat
 - 👀 I’m interested in Design and animation
 - 🌱 I’m currently learning AE adobe
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on 
 - 📫 How to reach me yahyaelkhayat6@gmail.com
 
 <!---
